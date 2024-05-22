@@ -8,6 +8,6 @@
 - ✨ Fun fact: I'm learning German
 ## Сontacts
 
-- 📩 [E-mail](julija_galkina613348@mail.ru) 
+- 📩 E-mail: julija_galkina613348@mail.ru 
 - 📫 [Telegram](https://t.me/rar_rosenrot) 
 
